@@ -5,13 +5,23 @@ _________________   _____  _______________
      #      (◞ ‸ ◟ㆀ)   ✧･ﾟ: *✧･ﾟ:*
 
   ,  _  ❕ hi, im eco! you can call me caitlyn or other nicknames idm!!  , 
+   
+       .・゜゜・______   ____  
+
 
 .・゜゜・ #  im mostly with my gf, or mostly offtb  ,,,  feel free to int with me im cool (๑´ㅂ`๑)  , 
+
+     
+    -: ✧ :-゜・．________  ___
 
 
        ..  -: ✧ :-゜・． about me! 
 
-! , im 17 yo,. AND IM A LESBIAN.,im from turkish  .  i love making random AU's of characters  .. 
+! , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz.
+
+     (╯︵╰,)   ,    _______ ___
+
+.  .   , 
 
      -: ✧ :-゜・． Kinns   . : "  :caitlyn kiramman (arcane/lol)  , ellie williams (tlou) , rachel amber (lis)  . obito uchiha (naruto), geto suguru (jjk) , shinazugawa sanemi (kny) , kakyoin (jjba) , nana (NANA) , maki (jjk), hange (aot), ymir (aot), guest 1337 (frskn), jane doe (frskn) ,  and more (◞ ‸ ◟ㆀ) 
 
@@ -28,7 +38,20 @@ _____    ..        ,,,,,    __________
 
   ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/3d91857ddcd70c1d1eb52e9a71ba4ce476d7f528/IMG_0335.jpeg)
 
+（；へ：）
+        
+       .・゜゜・  ❕
+
 
 ❕  "  . things i love,  : my gf, i love drawin, i love playing story games like life is strange,  ..  i love watching shows, movies, series  . and more.. 
 
+
+
+⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆  
+
+
+
 🌀  .  i love anything includes yuri, if that bothers you just dni ❕  , -: ✧ :-゜・．
+    
+
+        ➷
