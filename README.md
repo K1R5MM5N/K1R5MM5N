@@ -22,8 +22,8 @@ _________________   _____  _______________
 
     .・゜゜・_____  ________,, (⁠⁠´⁠ω⁠｀⁠⁠)
 
+!  !..i dont really int w people when im with my gf so please do NOT misunderstand this plz!  , ! 
 
-... 
 
 
      (╯︵╰,)   ,    _______ ___
