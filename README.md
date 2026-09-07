@@ -6,7 +6,7 @@ _________________   _____  _______________
 
   ,  _  ❕ hi, im eco! you can call me caitlyn or other nicknames idm!!  , 
    
-       .・゜゜・______   ____  
+    🎼   .・゜゜・______   ____  
 
 
 ❕.・゜゜・ #  im mostly with my gf, or mostly offtb  ,,,  feel free to int with me im cool (๑´ㅂ`๑)  , 
@@ -19,7 +19,7 @@ _________________   _____  _______________
 
 ! , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz.
       
-   -: ✧ :-゜・．_________
+ 🍁  -: ✧ :-゜・．_________
 
 ❕❕❕❕PLEASE TELL ME IF MY ACTIONS MAKE YOU UNCOMFORTABLE
 
@@ -29,7 +29,7 @@ _________________   _____  _______________
 
 
 
-     (╯︵╰,)   ,    _______ ___
+   🍂  (╯︵╰,)   ,    _______ ___
 
 .  .   , 
 
