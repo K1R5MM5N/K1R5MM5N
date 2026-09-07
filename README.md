@@ -16,3 +16,7 @@ _________________   _____  _______________
      -: ✧ :-゜・． Kinns   . : "  :caitlyn kiramman (arcane/lol)  , ellie williams (tlou) , rachel amber (lis)  . obito uchiha (naruto), geto suguru (jjk) , shinazugawa sanemi (kny) , kakyoin (jjba) , nana (NANA) , maki (jjk), hange (aot), ymir (aot), guest 1337 (frskn), jane doe (frskn) ,  and more (◞ ‸ ◟ㆀ) 
 
 .   _______    .  .  .. ✧･ﾟ: *✧･ﾟ:*   
+
+![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/d8776992eb0796d7834c12d8c746e0c5a3eccf9c/IMG_0333.jpeg)
+
+,,   ‘ ___  💤  
