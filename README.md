@@ -22,3 +22,6 @@ _________________   _____  _______________
 ,,   ‘ ___  💤  
 
        —— !  ..  @pt-ship-nominations  💤 TY FOR ADDİNG ME ND MY BELOVED :333
+
+
+  ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/3d91857ddcd70c1d1eb52e9a71ba4ce476d7f528/IMG_0335.jpeg)
