@@ -19,7 +19,8 @@ _________________   _____  _______________
 
 ! , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz.
 
-feel free to in pls im cool trust! (⁠⁠´⁠ω⁠｀⁠⁠)
+
+    .・゜゜・_____  ________,, (⁠⁠´⁠ω⁠｀⁠⁠)
 
 
 ... 
