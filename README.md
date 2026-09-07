@@ -73,4 +73,8 @@ _____    ..        ,,,,,    __________
 
 
 
-🌀  . !! DNI IF UR HOMOPHOBIC, RACIST, OR A WEIRDO.  .・゜゜・ also i dont check who i follow so please tell me if i follow a problematic people! 
+🌀  . !! DNI IF UR HOMOPHOBIC, RACIST, OR A WEIRDO.  .・゜゜・ also i dont check who i follow so please tell me if i follow a weirdo/problematic people! . 
+
+—————————————— .   
+
+![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/4d30f8e25ce61b940f2f99afa6665e5044d12386/IMG_0338.jpeg)
