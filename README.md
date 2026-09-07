@@ -33,7 +33,7 @@ _________________   _____  _______________
 
 .  .   , 
 
-     -: ✧ -゜・．❕ I'm a decorated officer, leader of house KIRAMMAN. address me with respect or keep your mouth shut. ◞  
+   🍥  -: ✧ -゜・．❕ I'm a decorated officer, leader of house KIRAMMAN. address me with respect or keep your mouth shut. ◞  
 
 .   _______    .  .  .. ✧･ﾟ: *✧･ﾟ:*   
 
@@ -58,7 +58,7 @@ _____    ..        ,,,,,    __________
 
 . 
 
-（；へ：）
+（；へ：）💬
         
        .・゜゜・  ❕
 
