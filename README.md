@@ -1,1 +1,18 @@
 ![image alt](https://github.com/K1R5MM5N/CKK/blob/626e38d389ac0955b1b62381e66dc860e5c5d08c/IMG_0334.jpeg) 
+
+_________________   _____  _______________
+      
+     #      (◞ ‸ ◟ㆀ)   ✧･ﾟ: *✧･ﾟ:*
+
+  ,  _  ❕ hi, im eco! you can call me caitlyn or other nicknames idm!!  , 
+
+.・゜゜・ #  im mostly with my gf, ormostlya offtb  ,,,  feel free to int with me im cool (๑´ㅂ`๑)  , 
+
+
+       ..  -: ✧ :-゜・． about me! 
+
+#  . im 17 yo, and im from turkish  .  i love making random AU's of characters  .. 
+
+     -: ✧ :-゜・． Kinns   . : "  :caitlyn kiramman (arcane/lol)  , ellie williams (tlou) , rachel amber (lis)  . obito uchiha (naruto), geto suguru (jjk) , shinazugawa sanemi (kny) , kakyoin (jjba) , nana (NANA) , maki (jjk), hange (aot), ymir (aot), guest 1337 (frskn), jane doe (frskn) ,  and more (◞ ‸ ◟ㆀ) 
+
+.   .. ✧･ﾟ: *✧･ﾟ:*   
