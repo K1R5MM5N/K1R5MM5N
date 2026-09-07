@@ -6,7 +6,7 @@ _________________   _____  _______________
 
   ,  _  ❕ hi, im eco! you can call me caitlyn or other nicknames idm!!  , 
 
-.・゜゜・ #  im mostly with my gf, ormostlya offtb  ,,,  feel free to int with me im cool (๑´ㅂ`๑)  , 
+.・゜゜・ #  im mostly with my gf, or mostly offtb  ,,,  feel free to int with me im cool (๑´ㅂ`๑)  , 
 
 
        ..  -: ✧ :-゜・． about me! 
