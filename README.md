@@ -19,6 +19,12 @@ _________________   _____  _______________
 
 ! , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz.
 
+feel free to in pls im cool trust! (⁠⁠´⁠ω⁠｀⁠⁠)
+
+
+... 
+
+
      (╯︵╰,)   ,    _______ ___
 
 .  .   , 
@@ -31,12 +37,17 @@ _________________   _____  _______________
 
 ,,   ‘ ___  💤  
 
-   @pt-ship-nominations  💤 TY FOR ADDİNG ME ND MY BELOVED :333
+   ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
+
+. 
 
 _____    ..        ,,,,,    __________
        -: ✧ :-゜・．
 
   ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/3d91857ddcd70c1d1eb52e9a71ba4ce476d7f528/IMG_0335.jpeg)
+
+
+. 
 
 （；へ：）
         
@@ -51,7 +62,4 @@ _____    ..        ,,,,,    __________
 
 
 
-🌀  .  i love anything includes yuri, if that bothers you just dni ❕  , -: ✧ :-゜・．
-    
-
-        ➷
+🌀  . !! DNI IF UR HOMOPHOBIC, RACIST, OR A WEIRDO.  .・゜゜・ also i dont check who i follow so please tell me if i follow a problematic people! 
