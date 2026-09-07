@@ -9,7 +9,7 @@ _________________   _____  _______________
        .・゜゜・______   ____  
 
 
-.・゜゜・ #  im mostly with my gf, or mostly offtb  ,,,  feel free to int with me im cool (๑´ㅂ`๑)  , 
+❕.・゜゜・ #  im mostly with my gf, or mostly offtb  ,,,  feel free to int with me im cool (๑´ㅂ`๑)  , 
 
      
     -: ✧ :-゜・．________  ___
@@ -22,7 +22,7 @@ _________________   _____  _______________
 
     .・゜゜・_____  ________,, (⁠⁠´⁠ω⁠｀⁠⁠)
 
-!  !..i dont really int w people when im with my gf so please do NOT misunderstand this plz!  , ! 
+☝❕❕  !..i dont really int w people when im with my gf so please do NOT misunderstand this plz!  , ! 
 
 
 
@@ -30,7 +30,7 @@ _________________   _____  _______________
 
 .  .   , 
 
-     -: ✧ :-゜・． Kinns   . : "  :caitlyn kiramman (arcane/lol)  , ellie williams (tlou) , rachel amber (lis)  . obito uchiha (naruto), geto suguru (jjk) , shinazugawa sanemi (kny) , kakyoin (jjba) , nana (NANA) , maki (jjk), hange (aot), ymir (aot), guest 1337 (frskn), jane doe (frskn) ,  and more (◞ ‸ ◟ㆀ) 
+🍥     -: ✧ :-゜・． Kinns   . : "  :caitlyn kiramman (arcane/lol)  , ellie williams (tlou) , rachel amber (lis)  . obito uchiha (naruto), geto suguru (jjk) , shinazugawa sanemi (kny) , kakyoin (jjba) , nana (NANA) , maki (jjk), hange (aot), ymir (aot), guest 1337 (frskn), jane doe (frskn) ,  and more (◞ ‸ ◟ㆀ) 
 
 .   _______    .  .  .. ✧･ﾟ: *✧･ﾟ:*   
 
@@ -39,7 +39,12 @@ _________________   _____  _______________
 ,,   ‘ ___  💤  
 
    ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
-
+  
+  .  ! "im a tragedy (babe) !  .. " ❀
+   
+      
+    
+       (◞‸◟ㆀ)  ____  ! 
 . 
 
 _____    ..        ,,,,,    __________
