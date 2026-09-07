@@ -62,6 +62,8 @@ _____    ..        ,,,,,    __________
         
        .・゜゜・  ❕
 
+![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/8f7671fb75a32ad8b497a6046e69eb7d2f6ca995/IMG_0339.jpeg)
+
 
 ❕  "  . things i love,  : my gf, i love drawin, i love playing story games like life is strange,  ..  i love watching shows, movies, series  . and more.. 
 
