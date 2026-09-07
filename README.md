@@ -11,7 +11,7 @@ _________________   _____  _______________
 
        ..  -: ✧ :-゜・． about me! 
 
-! , im 17 yo, and im from turkish  .  i love making random AU's of characters  .. 
+! , im 17 yo,. AND IM A LESBIAN.,im from turkish  .  i love making random AU's of characters  .. 
 
      -: ✧ :-゜・． Kinns   . : "  :caitlyn kiramman (arcane/lol)  , ellie williams (tlou) , rachel amber (lis)  . obito uchiha (naruto), geto suguru (jjk) , shinazugawa sanemi (kny) , kakyoin (jjba) , nana (NANA) , maki (jjk), hange (aot), ymir (aot), guest 1337 (frskn), jane doe (frskn) ,  and more (◞ ‸ ◟ㆀ) 
 
