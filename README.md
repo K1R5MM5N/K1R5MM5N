@@ -33,7 +33,7 @@ _________________   _____  _______________
 
 .  .   , 
 
-     -: ✧ :-゜・． Kinns   . : "  :caitlyn kiramman (arcane/lol)  , ellie williams (tlou) , rachel amber (lis)  . obito uchiha (naruto), geto suguru (jjk) , shinazugawa sanemi (kny) , kakyoin (jjba) , nana (NANA) , maki (jjk), hange (aot), ymir (aot), guest 1337 (frskn), jane doe (frskn) ,  and more (◞ ‸ ◟ㆀ) 
+     -: ✧ -゜・．❕ I'm a decorated officer, leader of house KIRAMMAN. address me with respect or keep your mouth shut. ◞  
 
 .   _______    .  .  .. ✧･ﾟ: *✧･ﾟ:*   
 
