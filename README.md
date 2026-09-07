@@ -21,7 +21,7 @@ _________________   _____  _______________
       
    -: ✧ :-゜・．_________
 
-❕❕❕❕PLEASE TELL ME IF MY ACRIONS MAKE YOU UNCOMFORTABLE
+❕❕❕❕PLEASE TELL ME IF MY ACTIONS MAKE YOU UNCOMFORTABLE
 
     .・゜゜・_____  ________,, (⁠⁠´⁠ω⁠｀⁠⁠)
 
