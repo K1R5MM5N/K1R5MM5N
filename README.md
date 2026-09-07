@@ -18,7 +18,10 @@ _________________   _____  _______________
        ..  -: ✧ :-゜・． about me! 
 
 ! , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz.
+      
+   -: ✧ :-゜・．_________
 
+❕❕❕❕PLEASE TELL ME IF MY ACRIONS MAKE YOU UNCOMFORTABLE
 
     .・゜゜・_____  ________,, (⁠⁠´⁠ω⁠｀⁠⁠)
 
