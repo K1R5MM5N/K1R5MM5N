@@ -17,7 +17,7 @@ _________________   _____  _______________
 
        ..  -: ✧ :-゜・． about me! 
 
-! , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz. and yes my english is kinda poor, im trying my best ❗
+! , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz. and yes my english is kinda poor, im trying my best ❗ yeah i do think that im caitlyn kiramman im not insane yall stop 💔
       
  🍁  -: ✧ :-゜・．_________
 
