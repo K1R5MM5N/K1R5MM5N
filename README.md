@@ -40,7 +40,7 @@ _________________   _____  _______________
 
 ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/d8776992eb0796d7834c12d8c746e0c5a3eccf9c/IMG_0333.jpeg)
 
-,,   ‘ ___  💤  
+,,   ‘ ___  💤  ➹ me nd my beloved ❀
 
    ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
   
