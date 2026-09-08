@@ -28,6 +28,7 @@ _________________   _____  _______________
 ☝❕❕  !..i dont really int w people when im with my gf so please do NOT misunderstand this plz!  , ! 
 
 
+🎼 - ❕ yesss i have a gf shes the most gorgeous person ive ever seen in my life i love her sm more than anything !!!🍰
 
    🍂  (╯︵╰,)   ,    _______ ___
 
@@ -43,7 +44,7 @@ _________________   _____  _______________
 
    ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
   
-🗯  .  !! " im a excellent shot !  .. " ❀
+🗯  .  !! "idm making new friends but im kind of introvert be patient with me pls😔    .  !  .. " ❀
    
       
     
@@ -56,7 +57,8 @@ _____    ..        ,,,,,    __________
   ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/3d91857ddcd70c1d1eb52e9a71ba4ce476d7f528/IMG_0335.jpeg)
 
 
-. 
+. 💬 " im in multiple fandoms, you can see me everywhere yes i mean it.. there some fandoms im mostly in ( . arcane, life is strange, the last of us, forsaken, mentalist, marvel. ) theres more but i cant really remember at all (YES I DO FORGET EASILY PLSZ BE NICE :(( . ) 
+_________  ______&
 
 （；へ：）💬
         
@@ -65,16 +67,15 @@ _____    ..        ,,,,,    __________
 ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/8f7671fb75a32ad8b497a6046e69eb7d2f6ca995/IMG_0339.jpeg)
 
 
-❕  "  . things i love,  : my gf, i love drawin, i love playing story games like life is strange,  ..  i love watching shows, movies, series  . and more.. 
-
+❕  " 🍰 . things i love,  : my gf, i love drawin, i love playing story games like life is strange,  ..  i love watching shows, movies, series  . listening every kind of music, making bracelets or accessories. I LOVE CATS 😾 ! 
 
 
 ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆  
 
 
 
-🌀  . !! DNI IF UR HOMOPHOBIC, RACIST, OR A WEIRDO.  .・゜゜・ also i dont check who i follow so please tell me if i follow a weirdo/problematic people! . 
+🗯‼️🌀  . !! DNI IF UR HOMOPHOBIC, RACIST, OR A WEIRDO.  .・゜゜・ also i dont check who i follow so please tell me if i follow a weirdo/problematic people! . 
 
-—————————————— .   
+—————————————— .  ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆ 
 
 ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/4d30f8e25ce61b940f2f99afa6665e5044d12386/IMG_0338.jpeg)
