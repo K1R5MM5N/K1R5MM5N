@@ -64,13 +64,13 @@ _________  ______&
         
        .・゜゜・  ❕
 
-(https://github.com/K1R5MM5N/K1R5MM5N/blob/8f7671fb75a32ad8b497a6046e69eb7d2f6ca995/IMG_0339.jpeg)
+![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/8f7671fb75a32ad8b497a6046e69eb7d2f6ca995/IMG_0339.jpeg)
 
 
 ❕  " 🍰 . things i love,  : my gf, i love drawin, i love playing story games like life is strange,  ..  i love watching shows, movies, series  . listening every kind of music, making bracelets or accessories. I LOVE CATS 😾 ! 
 
 
-⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆  ![image alt]_(https://github.com/K1R5MM5N/K1R5MM5N/blob/a5dc92b50ebe7e4577fa86bb95f638bc6a2ad8c7/77395D15-86FE-4A28-8E74-6D29E741305A.gif)
+⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆  ![gif alt]_(https://github.com/K1R5MM5N/K1R5MM5N/blob/a5dc92b50ebe7e4577fa86bb95f638bc6a2ad8c7/77395D15-86FE-4A28-8E74-6D29E741305A.gif)
 
 
 
