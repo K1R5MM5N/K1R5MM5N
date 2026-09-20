@@ -17,7 +17,7 @@ _________________   _____  _______________
 
        ..  -: ✧ :-゜・． about me! 
 
-! , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz. and yes my english is kinda poor, im trying my best ❗ yeah i do think that im caitlyn kiramman im not insane yall stop 💔
+! , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz. and yes my english is kinda poor, im trying my best 😔💔
       
  🍁  -: ✧ :-゜・．_________
 
@@ -28,11 +28,11 @@ _________________   _____  _______________
 ☝❕❕  !..i dont really int w people when im with my gf so please do NOT misunderstand this plz!  , ! 
 
 
-🎼 - ❕ yesss i have a gf shes the most gorgeous person ive ever seen in my life i love her sm more than anything !!!🍰
+🎼 - ❕ yesss i have a gf shes the most gorgeous person ive ever seen in my life i love her sm more than anything (shes my behbehh) !!!🍰
 
    🍂  (╯︵╰,)   ,    _______ ___
 
-.  .   , 
+.  .   , .  ---------
 
    🍥  -: ✧ -゜・．❕ I'm a decorated officer, leader of house KIRAMMAN. address me with respect or keep your mouth shut. ◞  
 
@@ -57,7 +57,7 @@ _____    ..        ,,,,,    __________
   ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/3d91857ddcd70c1d1eb52e9a71ba4ce476d7f528/IMG_0335.jpeg)
 
 
-. 💬 " im in multiple fandoms, you can see me everywhere yes i mean it.. there some fandoms im mostly in ( . arcane, life is strange, the last of us, forsaken, mentalist, marvel. ) theres more but i cant really remember at all (YES I DO FORGET EASILY PLSZ BE NICE :(( . ) 
+. 💬 " im in multiple fandoms, you can see me everywhere yes i mean it.. there some fandoms im mostly in ( . arcane, life is strange, the last of us, . ) theres more but i cant really remember at all (YES I DO FORGET EASILY PLSZ BE NICE :(( . ) 
 _________  ______&
 
 （；へ：）💬
