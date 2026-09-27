@@ -2,7 +2,7 @@
 
 _________________   _____  _______________
       
-  🫐   #      (◞ ‸ ◟ㆀ)   ✧･ﾟ: *✧･ﾟ:*
+    #      (◞ ‸ ◟ㆀ)   ✧･ﾟ: *✧･ﾟ:*
 
   ,  _  ❕ hi, im eco! you can call me caitlyn or other nicknames idm!!  , 
    
