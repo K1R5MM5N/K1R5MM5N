@@ -2,28 +2,28 @@
 
 _________________   _____  _______________
       
-     #      (◞ ‸ ◟ㆀ)   ✧･ﾟ: *✧･ﾟ:*
+  🫐   #      (◞ ‸ ◟ㆀ)   ✧･ﾟ: *✧･ﾟ:*
 
   ,  _  ❕ hi, im eco! you can call me caitlyn or other nicknames idm!!  , 
    
-    🎼・゜゜・______   ____  
+    🌀🎼・゜゜・______   ____  ...   .........
 
 
 ❕.・゜゜・ #  im mostly with my gf, or mostly offtb  ,,,  feel free to int with me im cool (๑´ㅂ`๑)  , 
-
+      🦋 idm cuddles feel free to c+h w me :3 
      
     -: ✧ :-゜・．________  ___
 
 
-       ..  -: ✧ :-゜・． about me! 
+       ..  -: ✧ :-゜・． about me!   . 
 
-! , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz. and yes my english is kinda poor, im trying my best 😔💔
+! 💤 , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz. and yes my english is kinda poor, im trying my best 😔💔
       
  🍁  -: ✧ :-゜・．_________
 
-❕❕❕❕PLEASE TELL ME IF MY ACTIONS MAKE YOU UNCOMFORTABLE
+❕❕❕❕PLEASE TELL ME IF MY ACTIONS MAKE YOU UNCOMFORTABLE 🫵
 
-    .・゜゜・_____  ________,, (⁠⁠´⁠ω⁠｀⁠⁠)
+  🕸️  .・゜゜・_____  ________,, (⁠⁠´⁠ω⁠｀⁠⁠)
 
 ☝❕❕  !..i dont really int w people when im with my gf so please do NOT misunderstand this plz!  , ! 
 
@@ -44,7 +44,7 @@ _________________   _____  _______________
 
    ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
   
-🗯  .  !! "idm making new friends but im kind of introvert be patient with me pls😔    .  !  .. " ❀
+🗯  .  !! "idm making new friends but im kind of introvert be patient with me pls, and yes im shy as hell😔    .  !  .. " ❀
    
       
     
@@ -57,17 +57,17 @@ _____    ..        ,,,,,    __________
   ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/3d91857ddcd70c1d1eb52e9a71ba4ce476d7f528/IMG_0335.jpeg)
 
 
-. 💬 " im in multiple fandoms, you can see me everywhere yes i mean it.. there some fandoms im mostly in ( . arcane, life is strange, the last of us, . ) theres more but i cant really remember at all (YES I DO FORGET EASILY PLSZ BE NICE :(( . ) 
+. 💬 " im in multiple fandoms, you can see me everywhere yes i mean it.. there some fandoms im mostly in ( . arcane, life is strange, the last of us, JJBA. ) theres more but i cant really remember at all (YES I DO FORGET EASILY PLSZ BE NICE :(( . ) 
 _________  ______&
 
-（；へ：）💬
+（；へ：）💬. ,,   
         
-       .・゜゜・  ❕
+     🪼  .・゜゜・  ❕
 
 ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/8f7671fb75a32ad8b497a6046e69eb7d2f6ca995/IMG_0339.jpeg)
 
 
-❕  " 🍰 . things i love,  : my gf, i love drawin, i love playing story games like life is strange,  ..  i love watching shows, movies, series  . listening every kind of music, making bracelets or accessories. I LOVE CATS 😾 ! 
+❕  " 🍰 . things i love,  : my gf, i love drawin, i love playing story games like life is strange,  ..  i love watching shows, movies, series  . listening every kind of music, making bracelets or accessories. I LOVE CATS 😾 ! (yes i do love other animals dont misunderstand ts
 
 
 ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆  
@@ -75,6 +75,7 @@ _________  ______&
 
 
 🗯‼️🌀  . !! DNI IF UR HOMOPHOBIC, RACIST, OR A WEIRDO.  .・゜゜・ also i dont check who i follow so please tell me if i follow a weirdo/problematic people! . 
+
 
 —————————————— .  ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆ 
 
