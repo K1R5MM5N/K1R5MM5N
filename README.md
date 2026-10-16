@@ -19,7 +19,8 @@ _________________   _____  _______________
 
 
 
-❕.・゜゜・ #  im mostly with my gf, or mostly offtb  ,,,  feel free to int with me im cool (๑´ㅂ`๑)  , 
+❕.・゜゜・ #  im mostly with my gf, or mostly offtb  ,,, 
+feel free to int with me im cool (๑´ㅂ`๑)  , 
 
 
              
@@ -37,7 +38,9 @@ _________________   _____  _______________
 
 
 
-! 💤 , im 17 yo, yes im a masc lesbian if this bother you please dni. 😾 im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz. and yes my english is kinda poor, im trying my best 😔💔
+! 💤 , im 17 yo, yes im a butch lesbian if this bother you please dni.  im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz. 
+and yes my english is kinda poor, im trying my best , 
+might seem offline mostly but im just busy with stuff and etc .
 
 
       
@@ -45,15 +48,9 @@ _________________   _____  _______________
 
 
 
-❕❕❕❕PLEASE TELL ME IF MY ACTIONS MAKE YOU UNCOMFORTABLE 🫵
-
-  🕸️  .・゜゜・_____  ________,, (⁠⁠´⁠ω⁠｀⁠⁠)
-
-☝❕❕  !..i dont really int w people when im with my gf so please do NOT misunderstand this plz!  , ! 
+❕❕❕❕PLEASE TELL ME IF MY ACTIONS MAKE YOU UNCOMFORTABLE.
 
 
-
-🎼 - ❕ yesss i have a gf shes the most gorgeous person ive ever seen in my life i love her sm more than anything (shes my behbehh) !!!🍰 
 
 
 
@@ -64,7 +61,9 @@ _________________   _____  _______________
 
 .  .   , .  ---------
 
-   🍥  -: ✧ -゜・．❕ I'm a decorated officer, leader of house KIRAMMAN. address me with respect or keep your mouth shut. ◞  
+   🍥  -: ✧ -゜・．❕ I'm a decorated officer, 
+   leader of house KIRAMMAN. address me with respect 
+   or keep your mouth shut. ◞  
 
 
 
@@ -74,16 +73,7 @@ _________________   _____  _______________
 
 ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/d8776992eb0796d7834c12d8c746e0c5a3eccf9c/IMG_0333.jpeg)
 
-,,   ‘ ___  💤  ➹ me nd my beloved ❀
-
-
-
-   ｡･:*:･ﾟ★,｡･:*:･ﾟ☆
-
-  
-
-
-🗯  .  !! "idm making new friends but im kind of introvert be patient with me pls, and yes im shy as hell..     .  !  .. " ❀
+,,   ‘ ___  💤  ➹ me nd my beloved .
    
       
     
@@ -93,14 +83,15 @@ _________________   _____  _______________
 _____    ..        ,,,,,    __________
        -: ✧ :-゜・．
 
-       
+  🐾.  . about me : i usually go by she / her , i am butch lesbian. yes i do have a lovely girlfriend ,  . im in multiple fandoms . usually , ( arcane , life is strange , JJBA , deltarune and more . 
+
 
   ![image alt](https://github.com/K1R5MM5N/K1R5MM5N/blob/3d91857ddcd70c1d1eb52e9a71ba4ce476d7f528/IMG_0335.jpeg)
 
 
 
 
-. 💬 " im in multiple fandoms, you can see me everywhere yes i mean it.. there some fandoms im mostly in ( . arcane, life is strange, the last of us, JJBA. ) theres more but i cant really remember at all (YES I DO FORGET EASILY PLSZ BE NICE :(( . )  i have a lot to share but i cant really remember those at all….
+
 
 
 _________  ______&
@@ -120,9 +111,6 @@ _________  ______&
 
 
 
-❕  " 🍰 . things i love,  : my gf,
-i love drawin, i love playing story games like life is strange,  
-  ..  i love watching shows, movies, series  . listening every kind of music, making bracelets or accessories. I LOVE CATS 😾 ! (yes i do love other animals dont misunderstand ts
 
 
 ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆  
