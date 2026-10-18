@@ -19,7 +19,7 @@ _________________   _____  _______________
 
 
 
-❕.・゜゜・ #  im mostly with my gf, or mostly offtb  ,,, 
+❕.・゜゜・ #  im mostly with my moots, or mostly offtb  ,,, 
 feel free to int with me im cool (๑´ㅂ`๑)  , 
 
 
@@ -36,7 +36,7 @@ feel free to int with me im cool (๑´ㅂ`๑)  ,
 
        ..  -: ✧ :-゜・． about me!   . 
 
-
+    (/□＼*)
 
 ! 💤 , im 17 yo, yes im a butch lesbian if this bother you please dni.  im turkish . ISTP  , introvert and etc. DNC my ponies without my permission plz. 
 and yes my english is kinda poor, im trying my best , 
@@ -44,13 +44,13 @@ might seem offline mostly but im just busy with stuff and etc .
 
 
       
- 🍁  -: ✧ :-゜・．_________
+ (⁠◡⁠⁠ω⁠⁠◡⁠)  -: ✧ :-゜・．_________
 
 
 
 ❕❕❕❕PLEASE TELL ME IF MY ACTIONS MAKE YOU UNCOMFORTABLE.
 
-
+（；へ：）
 
 
 
@@ -65,7 +65,7 @@ might seem offline mostly but im just busy with stuff and etc .
    leader of house KIRAMMAN. address me with respect 
    or keep your mouth shut. ◞  
 
-
+(•ˋ _ ˊ•)
 
 .   _______    .  .  .. ✧･ﾟ: *✧･ﾟ:*   
 
