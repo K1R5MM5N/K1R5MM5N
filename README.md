@@ -2,5 +2,5 @@
 
 ⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆⋆ ˚｡⋆୨୧˚　˚୨୧⋆｡˚ ⋆    
 
-<img width="488" height="248" alt="Image" src="https://github.com/user-attachments/assets/820235c3-8b5a-467b-92d5-137ebb074d79" />
+<img width="800" height="450" alt="Image" src="https://github.com/user-attachments/assets/3f16685e-42cb-4587-901d-4eb101e236a7" />
 
